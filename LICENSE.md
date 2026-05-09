@@ -1,4 +1,4 @@
-
+Experience my avatar like never before with my avatar Scripts rare, the #1 Script. Includes auto-collect and auto-farm for unbeatable performance.
 
 
 
